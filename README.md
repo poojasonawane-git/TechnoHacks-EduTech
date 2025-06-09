@@ -1,2 +1,2 @@
-# TechnoHacks-EduTech
-My First Day of Internship At TechnoHacks EduTech
+# TechnoHacks-EduTech 😄
+Intern At TechnoHacks EduTech 
