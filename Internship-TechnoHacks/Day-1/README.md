@@ -1,4 +1,4 @@
-**My first day of internship at TechnoHacks EduTechwas worth it!!** 😄
+**My first day of internship at TechnoHacks EduTech was worth it!!** 😄
 # 🚀 My First Day at TechnoHacks EduTech 
 
 ## 🏢 Introduction to Internship
