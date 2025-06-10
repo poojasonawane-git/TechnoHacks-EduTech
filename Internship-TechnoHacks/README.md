@@ -1,4 +1,7 @@
-**Here every single day of internship is preserved**
+# **📌 Internship Progress Tracker**  
 
-These are the daily tasks I have assigned myself to stay disciplined and dedicated.
-I believe 'There no success without discipline and consistency.'
+## 🗂️ Every Single Day of Internship is Preserved  
+
+These are the **daily tasks** I have assigned myself to stay **disciplined and dedicated** throughout my learning journey.  
+
+*I believe that* **"There is no success without discipline and consistency."**  
